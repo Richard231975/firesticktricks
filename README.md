@@ -1,0 +1,1 @@
+its all your apps and programs for the amazon firestick before and after the platform vegas the platform that was supposed to stop third party apps on the firestick there are all the usal programs add free or oringal
